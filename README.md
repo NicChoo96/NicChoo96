@@ -12,6 +12,7 @@ Here are some ideas to get you started:
 - 🔭 I’m currently working at TVS Digital Pte Ltd as a Software Engineer Intern
 - 🌱 I’m currently trying to expand my horizon in evolving human evolution
 - 📫 How to reach me: nic_choo_96@hotmail.com
-- ⚡ Fun fact: I play games, don't ask me how many. Work and growth in knowledge will always take prioritization.
+- ⚡ Fun fact: I play games, don't ask me how many. 
+- 💬 Work and growth in knowledge takes higher priority.
 
 --- WIP... More profile updates to come.
